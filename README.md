@@ -1,3 +1,3 @@
 ### Hi there 👋
-### Hi I'm flowersin, also known as El or Elliot.  I use any pronouns.
-### I'm just beginning to learn how to code, I'm currently learning python and C.
+### Hi I'm flowersin, also known as Emma, I use She/Her pronouns.
+### I'm just beginning to learn how to code, I'm currently learning literally anything I can get my hands on.
